@@ -109,6 +109,6 @@ Maximizing SEO in 2023 will require businesses to understand changes in <a href=
 
 <h2>Click on the image to download the Guide:</h2>
 
-<a href="https://www.viralcontent.shop">
+<a href="[https://www.viralcontent.shop](https://www.viralcontent.shop/seo-marketing-school)">
   <img src="https://www.viralcontent.shop/wp-content/uploads/2022/12/1670432932-scaled.webp" alt="SEO guide" >
 </a>
