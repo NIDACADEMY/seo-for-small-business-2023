@@ -1,4 +1,4 @@
-# seo-for-small-business-2023
+# seo-for-small-business-2024
 As the digital age advances, small businesses are looking for ways to stand out in a competitive market and maximize their online presence. Search engine optimization (<a href="https://www.nidacademy.org/seo-guide">SEO</a>) is one of the most effective ways for small businesses to increase website traffic, gain visibility, and generate leads. As modern consumers become increasingly reliant on search engines to find products or services, <a href="https://www.nidacademy.org/seo-guide/">SEO</a> practices are more important than ever in 2023 and beyond.
 
 
